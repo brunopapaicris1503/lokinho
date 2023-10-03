@@ -10,4 +10,4 @@ Meu nome é Bruno Mascarello Calixto
 
 b.calixto@escola.pr.gov.br
 
-![](https://media.tenor.com/RvWIf6kYd0oAAAAC/thumbs-down-you.gif)
+![](https://media.tenor.com/oSASxe-6GesAAAAC/spongebob-patrick.gif)
